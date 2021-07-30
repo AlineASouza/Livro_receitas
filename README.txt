@@ -3,3 +3,6 @@
 Olá, seja bem-vindo(a) ao conjunto das minhas receitas favoritas!
 
 Faça bom uso e divirta-se!! :) 
+
+ - Cuzcuz Branco
+ - Palha Italiana
